@@ -1,2 +1,0 @@
-# RedmondMoreya_CSC17A_46721
-RCC CSC17A Summer 2020
